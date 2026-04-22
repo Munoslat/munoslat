@@ -44,7 +44,7 @@
 
 ## 📫 Contact Me
 
-* 📧 Email: [your@email.com](munonor12@email.com)
+* 📧 Email:(munonor12@email.com)
 
 ---
 
